@@ -5,7 +5,7 @@
 # LUCAS DOKKO
 </center>
 
-Olá sou Lucas descendente de japones, tenho 28 anos, estou cursando Engenharia da Computação, falta apenas 6 meses para terminar, apaixonado por tecnologia. Atualmente estagiando
+Olá sou Lucas, descendente de japones, tenho 28 anos, estou cursando Engenharia da Computação, faltam apenas 6 meses para terminar, apaixonado por tecnologia. Atualmente estagiando
 
 <center>
 
